@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game Development
 - 🌱 I’m currently learning Game Development
 - 💞️ I’m looking to collaborate on Game Development
-- 📫 How to reach me Game Development
+- 📫 How to reach me [Game Development](https://www.youtube.com/@parker_dev)
 - 😄 Pronouns: Game Development
 - ⚡ Fun fact: Game Development
 
